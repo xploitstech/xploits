@@ -28,7 +28,7 @@ Best Tool For Increase Instagram Follower.
 
 `$ bash xploits.sh`
 
-## • Watch Video Tutorial From Below
+## • subscribe Below for the next script
 * https://www.youtube.com/channel/UC4K7LoYkJkKvDrtqg5LBa6w
 ---
 
